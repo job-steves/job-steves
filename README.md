@@ -3,7 +3,7 @@
 - 🌱 I will now insert thermite paste into your left nostril
 - 💞️ I’m looking to collaborate on large group autodefenestration
 - 📫 How to reach me: don't try. my arms are longer than yours
-- 😄 Pronouns: ergative/absolutive
+- 😄 Pronouns: I'm more anti-noun
 - ⚡ Fun fact: Thy punishment is death!
 
 <!---
